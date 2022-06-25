@@ -7,3 +7,10 @@
 - Daily Scrum Meeting
 - Sprint Review Meeting
 - Sprint Retrospective Meeting
+
+
+
+
+
+
+https://d112uwirao0vo9.cloudfront.net/wp-content/uploads/2019/09/scrum-development-1024x909.jpg
